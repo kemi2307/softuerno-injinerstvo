@@ -1,0 +1,2 @@
+# softuerno-injinerstvo
+uprajnenie
